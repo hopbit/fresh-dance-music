@@ -9,7 +9,7 @@ Tags: *#dance* *#pop* *#deep* *#house* *#vocal*
 
 You can [**DOWNLOAD (163MB, 1h 11min)**](https://docs.google.com/uc?id=12C2w-NwZwHSBymUqjAbyXa8IsBz8KUDE&export=download) 
 this set and listen on your device or listen on [**MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/beachball-july-2017/) 
-or [MIX-SETS](http://www.mix-sets.com/track/8688/fresh-dance-music-beachball-july-2018).
+or **[MIX-SETS](http://www.mix-sets.com/track/8688/fresh-dance-music-beachball-july-2018)**.
 
 **Tracklist:**  
  
