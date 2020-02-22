@@ -12,4 +12,4 @@
 
 ----
 
-[Other Sets](https://hopbit.github.io/sets)
+[Other Sets](https://hopbit.github.io/sets/)
