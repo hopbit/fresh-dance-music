@@ -5,13 +5,10 @@
 Date: 2008-04-01    
 Tags: dance, pop    
 
-[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528TFhuQXNLUzlyV2s)](https://drive.google.com/uc?id=0B8ZWtaisj528WUVkVExyNU5ETk0&export=download)
+[![Fresh Dance Music](http://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/)](https://drive.google.com/uc?id=0B8ZWtaisj528WUVkVExyNU5ETk0&export=download)
 
-<!-- ### PLAYER ### -->
-[LISTEN @ MIXCLOUD](http://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/)
-
-<!-- ### DOWNLOAD LINK ### -->
-[**DOWNLOAD (90MB, 78min)**](https://drive.google.com/uc?id=0B8ZWtaisj528WUVkVExyNU5ETk0&export=download)
+* [LISTEN @ MIXCLOUD](http://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/) 
+* [**DOWNLOAD (90MB, 78min)**](https://drive.google.com/uc?id=0B8ZWtaisj528WUVkVExyNU5ETk0&export=download) 
 
 TRACKLIST:  
 
