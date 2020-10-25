@@ -8,6 +8,7 @@ Tags: *#dance* *#pop* *#allsaintsday* *#halloween* *#vocal*
 [![Fresh Dance Music - Przed Duszki (October 2020)](przed_duszki_october_2020_400x400.jpg)](https://www.mixcloud.com/FreshDanceMusic/przed-duszki-october-2020/)  
 
 * [**MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/przed-duszki-october-2020/) 
+* [**SOUNDCLOUD**](https://soundcloud.com/hopbit/przed-duszki-october-2020)
 * [**DOWNLOAD TO YOUR DEVICE(131MB, 57m)**](https://1drv.ms/u/s!AmzuuXrjf51v34QvgiOFLBbjEby2jw?e=Cnodco) 
 
 **Tracklist:**  
