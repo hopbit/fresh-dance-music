@@ -3,7 +3,7 @@
 ----
 
 Date: 2020-10-25  
-Tags: *#dance* *#pop* *allsaintsday* *#halloween* *#vocal*    
+Tags: *#dance* *#pop* *#allsaintsday* *#halloween* *#vocal*    
   
 [![Fresh Dance Music - Przed Duszki (October 2020)](przed_duszki_october_2020_400x400.jpg)](https://www.mixcloud.com/FreshDanceMusic/przed-duszki-october-2020/)  
 
