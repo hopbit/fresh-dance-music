@@ -1,4 +1,4 @@
-# Fresh Dance Music Sets 
+![Fresh Dance Music Sets](./fresh-dance-music.jpg)
 
 ----
 * **[Przed Duszki (October 2020)](./fresh-dance-music/przed-duszki-october-2020.md)**
