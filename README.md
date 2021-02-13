@@ -4,7 +4,8 @@
 
 # Sets 
 
-* **[Przed Duszki (October 2020)](./fresh-dance-music/przed-duszki-october-2020.md)**
+* **[Izolatorium (November 2020)](./fresh-dance-music/izolatorium-november-2020.md)**
+* [Przed Duszki (October 2020)](./fresh-dance-music/przed-duszki-october-2020.md)
 * [Beachball (July 2018)](./fresh-dance-music/beachball-july-2018.md)
 * [Somebody New (November 2015)](./fresh-dance-music/somebody-new-november-2015.md)
 * [Cave (January 2015)](./fresh-dance-music/cave-january-2015.md)
