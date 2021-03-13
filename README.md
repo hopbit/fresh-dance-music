@@ -1,6 +1,6 @@
 ![Fresh Dance Music Sets](./fresh-dance-music.jpg)
 
-[YouTube](https://www.youtube.com/channel/UCRJtL7rVTQLoEY6aqa6lh2Q/videos), [Mixcloud](http://www.mixcloud.com/FreshDanceMusic/), [Soundcloud](https://soundcloud.com/freshdancemusic/tracks), [Spotify](https://open.spotify.com/playlist/5pauzyEbUAAKknivnm52nm), [Facebook](https://www.facebook.com/FreshDanceMusicSets), [Twitter](https://twitter.com/freshdancemusic) 
+[YouTube](https://www.youtube.com/channel/UCRJtL7rVTQLoEY6aqa6lh2Q/videos), [Mixcloud](http://www.mixcloud.com/FreshDanceMusic/), [Soundcloud](https://soundcloud.com/freshdancemusic/tracks), [Spotify](https://open.spotify.com/playlist/5pauzyEbUAAKknivnm52nm), [Facebook](https://www.facebook.com/FreshDanceMusicSets), [Twitter](https://twitter.com/freshdancemusic), [Instagram](https://www.instagram.com/freshdancemusicsets/) 
 
 # Sets 
 
