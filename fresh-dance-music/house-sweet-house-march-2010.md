@@ -2,8 +2,8 @@
 
 ----
 
-Date: **2010-03-21**
-Tags: **#dance**, **#vocal**, **#house**
+Date: **2010-03-21**  
+Tags: **#dance**, **#vocal**, **#house**  
 
 [![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528UURtMjg0TFFYcTA)](https://www.mixcloud.com/FreshDanceMusic/house-sweet-house-march-2010/)
 
