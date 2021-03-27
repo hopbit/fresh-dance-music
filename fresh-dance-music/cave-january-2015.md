@@ -5,11 +5,10 @@
 Date: 2015-01-11    
 Tags: dance, pop, house, dnb    
 
-[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528SzZlNEhYM3dxMGc)](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528OTFSUzRKWndPV2s)
+[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528SzZlNEhYM3dxMGc)](http://www.mixcloud.com/FreshDanceMusic/cave-january-2015/)
 
-[LISTEN @ MIXCLOUD](http://www.mixcloud.com/FreshDanceMusic/cave-january-2015/)
-
-[**DOWNLOAD (148MB, 66min)**](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528OTFSUzRKWndPV2s)
+* **[Listen at MIXCLOUD (66 min)](http://www.mixcloud.com/FreshDanceMusic/cave-january-2015/)**
+* **[**Download MP3 (148 MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LFywcaYOyy2MpIVpw?e=P4WBz2)**
 
 Tracklist:  
 
