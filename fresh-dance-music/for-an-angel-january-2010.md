@@ -5,11 +5,9 @@
 Date: 2010-01-08    
 Tags: dance, pop    
 
-[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528R2xBSXJoYlkzOVE)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIcC1JNWxzMjFLQmc)
+[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528R2xBSXJoYlkzOVE)](https://1drv.ms/u/s!AmzuuXrjf51v2LFkW-3aWYgrDZd0mQ?e=jQHOHn)
 
-<iframe width="400" height="166" scrolling="no" frameborder="no" src="http://w.soundcloud.com/player?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F1381204&auto_play=false&show_artwork=false&color=ff7700"></iframe>
-
-[**DOWNLOAD (77MB, 56min)**](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIcC1JNWxzMjFLQmc)
+* [**DOWNLOAD (77MB, 56min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LFkW-3aWYgrDZd0mQ?e=jQHOHn)
 
 TRACKLIST:  
 
