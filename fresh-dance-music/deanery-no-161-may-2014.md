@@ -5,7 +5,7 @@
 Date: 2014-05-31    
 Tags: dance, pop, house, pop dnb    
 
-[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528cFA2X1c5VXRzekE)](http://www.mixcloud.com/FreshDanceMusic/deanery-no-161-may-2014/)  
+[![Fresh Dance Music](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/3/3/6/b/82d6-a5fc-4dfc-9539-0cab7b7c1277.jpg)](http://www.mixcloud.com/FreshDanceMusic/deanery-no-161-may-2014/)  
 Photo by: **Justyna Helena Majewska** 
 
 * [Listen on MIXCLOUD](http://www.mixcloud.com/FreshDanceMusic/deanery-no-161-may-2014/)
