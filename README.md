@@ -4,7 +4,8 @@
 
 # Sets 
 
-* **[Rzepedka (April 2021)](./fresh-dance-music/rzepedka-april-2021.md)**
+* **[New Time, Same Place (August 2021)](./fresh-dance-music/new-time-same-place-august-2021.md)**
+* [Rzepedka (April 2021)](./fresh-dance-music/rzepedka-april-2021.md)
 * [Izolatorium (November 2020)](./fresh-dance-music/izolatorium-november-2020.md)
 * [Przed Duszki (October 2020)](./fresh-dance-music/przed-duszki-october-2020.md)
 * [Beachball (July 2018)](./fresh-dance-music/beachball-july-2018.md)
